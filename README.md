@@ -1,3 +1,2 @@
-# testing2
-a ver que onda si funciona amigos esto es una pruebita
-estamos en vivo y en directo desde este lugar JAJAAJJA ayuda me voy a matar
+# Esta es una prueba de lo inteligente que soy yo
+si puedo cambiar esto va a ser un golazo
